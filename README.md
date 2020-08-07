@@ -1,2 +1,2 @@
 # hello-world
-just another (the first)
+i am a computer student, open to knowledge and news challenges. thanks for read me. :)
